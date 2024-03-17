@@ -1,7 +1,6 @@
 👋 Hi, I’m @Lrrrr549
 
-My Avatar is my favorite actress DaFei Zhuang 🥺🥺🥺
-
+Working for my PhD.
 
 <!---
 Lrrrr549/Lrrrr549 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
